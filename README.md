@@ -12,6 +12,7 @@ Pull Requestわからんって人はリプライしてください
 ## 参加者
 
 - [MysticDoll](https://twitter.com/MysticDoll)
+- [oddmutou](https://twitter.com/oddmutou)
 
 ## 日程
 
