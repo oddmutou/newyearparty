@@ -13,6 +13,7 @@ Pull Requestわからんって人はリプライしてください
 
 - [MysticDoll](https://twitter.com/MysticDoll)
 - [oddmutou](https://twitter.com/oddmutou)
+- [amane_katagiri](https://twitter.com/amane_katagiri)
 
 ## 日程
 
