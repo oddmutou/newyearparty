@@ -15,6 +15,7 @@ Pull Requestわからんって人はリプライしてください
 - [oddmutou](https://twitter.com/oddmutou)
 - [amane_katagiri](https://twitter.com/amane_katagiri)
 - [EbiEbiEvidence](https://twitter.com/EbiEbiEvidence)
+- [wasyro](https://twitter.com/wasyro)
 
 ## 日程
 
